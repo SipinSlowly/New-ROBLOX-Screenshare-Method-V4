@@ -1,2 +1,2 @@
 # New-ROBLOX-Screenshare-Method-V4
-new ROBLOX screenshare method leak
+hi, new ss method im leaking - probably won't leak anymore screenshare methods after this one. (check my github for more!)
