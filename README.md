@@ -1,2 +1,2 @@
 # New-ROBLOX-Screenshare-Method-V4
-new ROBLOX screenshare method leak.
+new ROBLOX screenshare method leak
